@@ -1,0 +1,1 @@
+# Thin-Film-Research-Practice-Sol-Gel-ZnO-Bandgap-Study
